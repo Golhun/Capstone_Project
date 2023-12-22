@@ -36,4 +36,4 @@ Ready to witness the magic unfold? ✨ Let the coding spectacle commence! 🚀�
 
 Happy Coding! 🌈🚀
 
-\[Your Name\] 👨‍💻🚀
+~Gerald 👨‍💻🚀
